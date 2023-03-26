@@ -10,7 +10,7 @@ I MADE IT WITH PYTHON
 
 DO YOU NEED THE BETA VERSION [EXE FILE]
 
-MESSAGE > https://t.me/geniustechie
+MESSAGE > https://t.me/+r4q42DHGePA5ZTJk
 
 
 # CONFIGURATION
@@ -26,7 +26,7 @@ MESSAGE > https://t.me/geniustechie
 
 YOU DON'T UNDERSTAND ?
 
-MESSAGE > https://t.me/geniustechie
+MESSAGE > https://t.me/+r4q42DHGePA5ZTJk
 
 
 # USAGE 
