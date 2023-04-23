@@ -49,3 +49,6 @@ USE THIS TOOL FOR YOUR PERSONAL MARKETING METHOD, I AM NOT RESPONSIBLE FOR ANY I
 
 
 LEGAL
+
+# KEYWORDS 
+how to send mass messages to twitter users how to mass dm on twitter twitter mass dm tool twitter auto dm tool twitter auto message tool
